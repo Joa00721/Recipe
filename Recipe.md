@@ -1,0 +1,3 @@
+En un bowl, mezcla el aceite de oliva, el perejil, las hojuelas de chile, el orégano, el vinagre de vino tinto, el jugo de limón, la sal, la pimienta y mezcla. Deja reposar por 20 min.
+En un sartén a fuego medio, calienta el aceite agrega las salchichas y cocina por 10 minutos o bien hasta que estén doraditas. 
+Sobre una tabla corta el pan haciendo una incisión, agrega la salchicha, el chimichurri y sirve.
